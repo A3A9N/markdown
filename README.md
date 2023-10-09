@@ -35,3 +35,5 @@ Stappen:
 7.Serveer de ceviche op individuele borden, eventueel op slabladeren, en serveer met zoete aardappel of maïs (indien gewenst). Smakelijk eten!
 
 Ceviche is een heerlijk gerecht van gemarineerde vis in limoensap met een mix van verse en pittige smaken. Je kunt de ingrediënten en de hoeveelheid chilipeper aanpassen aan je persoonlijke voorkeur. Eet smakelijk!
+
+Gevonden op: Mij vader heeft het verteld
