@@ -21,8 +21,11 @@ Zoete aardappel (optioneel, als bijgerecht).
 Stappen:
 
 1. Was de vis grondig en snijd deze in kleine blokjes. Plaats de vis in een glazen of plastic kom.
+   
 2. Pers het sap uit de limoenen en giet het over de vis. Zorg ervoor dat de vis volledig bedekt is met het sap. Dit zal de vis "koken" in de ceviche.
+ 
 3. Laat de vis minstens 30 minuten marineren in de koelkast. Tijdens deze periode zal de vis van kleur veranderen en steviger worden. Dit geeft aan dat de vis is "gekookt" door het zuur van de limoenen.
+   
 4. Terwijl de vis marineert, bereid je de groenten voor. Meng in een grote kom de rode ui, paprika's, tomaat, koriander, knoflook en chilipeper (indien gewenst).
 
 5.Nadat de vis 30 minuten heeft gemarineerd, giet je het teveel aan limoensap af om de vis te laten uitlekken. Voeg vervolgens de vis toe aan de kom met groenten.
